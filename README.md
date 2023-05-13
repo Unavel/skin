@@ -8,6 +8,9 @@
 # [azerino](https://unavel.s-ul.eu/60zjknDm)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070023909220422/screenshot042.jpg"/>
 
+# [boom 0524 edit](https://unavel.s-ul.eu/xglMWrCs)
+<img src="https://cdn.discordapp.com/attachments/823218963596574741/1106931661884624936/screenshot053.jpg"/>
+
 # [roman](https://unavel.s-ul.eu/Ac7P3ODE)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024412528660/screenshot044.jpg"/>
 
