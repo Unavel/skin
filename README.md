@@ -25,3 +25,9 @@
 
 # [tekkito_rafis](https://unavel.s-ul.eu/IgHRFkaY)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024957800468/screenshot046.jpg"/>
+
+# [vv_idke_trail](https://unavel.s-ul.eu/k3NhyPnx)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1107219592549515284/screenshot056.jpg"/>
+
+# [Vaxei 2023](https://unavel.s-ul.eu/KsMUP3k2)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1107219592331407460/screenshot055.jpg"/>
