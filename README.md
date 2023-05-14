@@ -1,6 +1,4 @@
 # Unavel skins
-# [- Ryanstolefromkevin](https://unavel.s-ul.eu/8Nb4Xe15)
-<img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070023649165414/screenshot041.jpg"/>
 
 # [AristiaEdit](https://unavel.s-ul.eu/5k3gbT92)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1106208130276270100/screenshot052.jpg"/>
