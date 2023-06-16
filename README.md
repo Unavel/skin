@@ -33,6 +33,9 @@
 # [tekkito2](https://unavel.s-ul.eu/rZs6AyIq)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024643223578/screenshot045.jpg"/>
 
+# [tekkito2.1](https://unavel.s-ul.eu/xnyYtkwd)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1119364252231270510/screenshot086.jpg"/>
+
 # [tekkito_rafis](https://unavel.s-ul.eu/IgHRFkaY)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024957800468/screenshot046.jpg"/>
 
