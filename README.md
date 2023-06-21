@@ -15,6 +15,9 @@
 # [azerino](https://unavel.s-ul.eu/60zjknDm)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070023909220422/screenshot042.jpg"/>
 
+# [bartek22830edited](https://cdn.discordapp.com/attachments/981594568392843324/981596763544776805/bartek22830edited.osk)
+<img src="https://camo.githubusercontent.com/68aa820f68eaa9af3ee43730721b1f65feece57286d051e5de139b3f68740649/68747470733a2f2f692e696d6775722e636f6d2f485a48704c50342e6a7067"/>
+
 # [boom 0524 edit](https://unavel.s-ul.eu/xglMWrCs)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1106931661884624936/screenshot053.jpg"/>
 
