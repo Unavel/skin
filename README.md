@@ -6,6 +6,9 @@
 # [- YUGEN FINAL - Widescreen](https://unavel.s-ul.eu/BdmOTid1)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1118132635324137502/screenshot076.jpg"/>
 
+# [- zibi instafade](https://unavel.s-ul.eu/fOKtcyVb)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1124760034274983966/screenshot100.jpg"/>
+
 # [AristiaEdit](https://unavel.s-ul.eu/5k3gbT92)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1106208130276270100/screenshot052.jpg"/>
 
