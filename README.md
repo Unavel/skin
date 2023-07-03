@@ -45,6 +45,9 @@
 # [tekkito2_0601](https://cdn.discordapp.com/attachments/926363752037748766/1121363060087607326/tekkito2_0601.osk)
 <img src="https://cdn.discordapp.com/attachments/926363752037748766/1121361127234883636/screenshot1988.png"/>
 
+# [tekkito2_kablaze](https://cdn.discordapp.com/attachments/912312360813862932/1125339094965297225/tekkito2_kablaze.osk)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1125338988891353129/screenshot105.jpg"/>
+
 # [tekkito_rafis](https://unavel.s-ul.eu/IgHRFkaY)
 <img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024957800468/screenshot046.jpg"/>
 
