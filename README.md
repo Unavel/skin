@@ -1,6 +1,6 @@
 # Unavel skins
 
-# [shigetora+unavel](https://unavel.s-ul.eu/6oeKYie6}
+# [shigetora+unavel](https://unavel.s-ul.eu/6oeKYie6)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1129389910315520050/screenshot133.jpg"/>
 
 # [- elohere x Seouless](https://unavel.s-ul.eu/oREWoZKH)
