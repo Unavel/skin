@@ -1,5 +1,8 @@
 # Unavel skins
 
+# [rudjinator](https://github.com/rudj-skinhub/woal/raw/tyfh/rudj/rudjinator.osk)
+[![](https://i.imgur.com/QBHDRdy.png)](https://github.com/rudj-skinhub/woal/raw/tyfh/rudj/rudjinator.osk)
+
 # [- Ryanstolefromkevin](https://unavel.s-ul.eu/o64rpwm8)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1133673311218454589/screenshot154.jpg"/>
 
