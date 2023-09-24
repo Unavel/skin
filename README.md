@@ -1,5 +1,11 @@
 # Unavel skins
 
+# [tekkito2-shige28](https://unavel.s-ul.eu/5L2SRLcJ)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1155418687193501787/screenshot211.jpg"/>
+
+# [tekkito2-shige16](https://unavel.s-ul.eu/ctcWWqEf)
+<img src="https://cdn.discordapp.com/attachments/912312360813862932/1155418792311144448/screenshot212.jpg"/>
+
 # [tekkito (1)](https://unavel.s-ul.eu/yUGfNWYg)
 <img src="https://cdn.discordapp.com/attachments/986238928153624636/1136666994830217306/screenshot172.jpg"/>
 
