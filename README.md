@@ -1,5 +1,5 @@
 # Unavel skins
-# [tekkito_ekoro](https://unavel.s-ul.eu/hFLrkc9E)
+# [tekkito_ekoro](https://unavel.s-ul.eu/hFLrkc9E)|[+tekkito legoshii (better ver)](https://unavel.s-ul.eu/BDxADZCP)
 <img src="https://cdn.discordapp.com/attachments/1189889889790074880/1203632523578572840/screenshot296.jpg?ex=65d1cd24&is=65bf5824&hm=8cf68a1b732704607a50fcf7f93e343af88092c961a7581005c444458d2b1c05&"/>
 
 # [yebalnix2](https://unavel.s-ul.eu/dl9c0IbJ)
