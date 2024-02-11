@@ -2,6 +2,9 @@
 # [tekkito_ekoro](https://unavel.s-ul.eu/hFLrkc9E)|[+tekkito legoshii (better ver)](https://unavel.s-ul.eu/BDxADZCP)
 <img src="https://cdn.discordapp.com/attachments/1189889889790074880/1203632523578572840/screenshot296.jpg?ex=65d1cd24&is=65bf5824&hm=8cf68a1b732704607a50fcf7f93e343af88092c961a7581005c444458d2b1c05&"/>
 
+# [tekkito_rafis](https://unavel.s-ul.eu/IgHRFkaY)|[+tekkito rafis (better ver)](https://unavel.s-ul.eu/LpDviFb5)
+<img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024957800468/screenshot046.jpg"/>
+
 # [yebalnix2](https://unavel.s-ul.eu/dl9c0IbJ)
 <img src="https://cdn.discordapp.com/attachments/1189889889790074880/1203632687676395550/screenshot297.jpg?ex=65d1cd4b&is=65bf584b&hm=ba3c429e3f657d84d927dc6a7f778b3c982dafa4cdf688a0a799d03fd258a018&"/>
 
@@ -91,9 +94,6 @@
 
 # [tekkito2_kablaze](https://cdn.discordapp.com/attachments/912312360813862932/1125339094965297225/tekkito2_kablaze.osk)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1125338988891353129/screenshot105.jpg"/>
-
-# [tekkito_rafis](https://unavel.s-ul.eu/IgHRFkaY)
-<img src="https://cdn.discordapp.com/attachments/823218963596574741/1104070024957800468/screenshot046.jpg"/>
 
 # [vv_idke_trail](https://unavel.s-ul.eu/k3NhyPnx)
 <img src="https://cdn.discordapp.com/attachments/912312360813862932/1107219592549515284/screenshot056.jpg"/>
